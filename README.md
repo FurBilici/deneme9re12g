@@ -1,1 +1,0 @@
-# deneme9re12g
